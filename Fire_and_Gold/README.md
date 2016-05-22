@@ -15,4 +15,4 @@ and with gold We test Our servants (x4)
 O SON OF BEING! Busy not thyself with this world, for with fire We test the gold, and with gold We test Our servants. — Bahá’u’lláh, The Hidden Words
 
 ##Preview
-[PDF](.Fire-and-Gold.pdf)
+[PDF](Fire-and-Gold.pdf)
