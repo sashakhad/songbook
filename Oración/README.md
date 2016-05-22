@@ -1,0 +1,48 @@
+##Lyrics
+
+¡Oh Señor, mi Dios!
+Ayuda a tus amados a ser
+firmes en tu Fe
+
+a caminar
+por tus senderos y a ser
+constantes en tu Causa
+
+¡Oh Señor, mi Dios!
+Ayuda a tus amados a ser
+firmes en tu Fe
+
+Concédeles
+tu gracia para que
+puedan resistir
+
+los asaltos del egoísmo
+y la pasión (X2)
+
+a caminar
+por tus senderos
+a ser constantes en tu Causa (X2)
+
+y seguir la luz
+de guía divina
+
+Tú el Poderoso,
+Tú  el Bondadoso,
+Tú el que subsiste por Sí mismo
+
+Tú el Donador,
+Tú el Compasivo,
+Tú el Todopoderoso, el Todo Generoso
+
+¡Oh Señor, mi Dios!
+Ayuda a tus amados a ser
+firmes en tu Fe
+
+##Original Text
+¡Oh Señor, mi Dios! Ayuda a tus amados a ser firmes en tu Fe, a caminar por tus senderos y a ser constantes en tu Causa. Concédeles tu gracia para que puedan resistir los asaltos del egoísmo y la pasión y seguir la luz de guía divina. Tú eres el Poderoso, el Bondadoso, el que subsiste por Sí mismo, el Donador, el Compasivo, el Todopoderoso, el Todo Generoso.
+
+##English Translation
+Lord my God!  Assist Thy loved ones to be firm in Thy Faith, to walk in Thy ways, to be steadfast in Thy Cause.  Give them Thy grace to withstand the onslaught of self and passion, to follow the light of divine guidance.  Thou art the Powerful, the Gracious, the Self-Subsisting, the Bestower, the Compassionate, the Almighty, the All-Bountiful.
+
+<!-- ##Preview -->
+<!-- [PDF](Fire-and-Gold.pdf) -->
